@@ -1,4 +1,4 @@
-# kurisu
+# Makise Kurisu
 Makise Kurisu from Steins Gate as Deputy
 
 One of my Favorite characters, Christina! She even comes with the Future Gadget Lab Pin!
